@@ -2,7 +2,7 @@
 - 👋 Hey, Jerry here : ) @J-Noel1523 (Jerry Noel)
 - 👀 Programming, piano, photography, and filming.
 - 🌱 Learning, growing, improving — you know — the good stuff : )
-- 📫 How to reach me: Instagram: [@officialjerrynoel](https://www.instagram.com/officialjerrynoel), LinkedIn: https://www.linkedin.com/in/jerry-noel
+- 📫 How to reach me: Instagram: [@officialjerrynoel](https://www.instagram.com/officialjerrynoel), TikTok: [@officialjerrynoel](https://www.tiktok.com/@officialjerrynoel) LinkedIn: https://www.linkedin.com/in/jerry-noel
 <!---
 J-Noel1523/J-Noel1523 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
